@@ -1,5 +1,6 @@
 # Anatol-Dukanov
 MEP engineer - manager
+
 Dear Madam / Sir,
 
 I have 26 years of experience. I have a genuine personality, committed and ambitious with an entrepreneurial approach. I am a manager of people and interested in different cultures and able to handle stress. Even though I am a natural leader, I am also a team member, which means a real commitment and not afraid to make decisions.
